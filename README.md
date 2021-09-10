@@ -2,7 +2,7 @@
 Ahh LPIXEL THE BEST
 
 
-Credits ## Lion Husky ###
+Credits ## Lion ###
 
 
-LP - https://discord.gg/FRbVd862
+LP
